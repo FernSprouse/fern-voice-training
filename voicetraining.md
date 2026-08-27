@@ -182,7 +182,7 @@ Say the following sentence sets using pitch infelction to stress the ***bolded &
     - I would like a silver ***bracelet*** for graduation.
     - I would like a silver bracelet for ***graduation***.
 1. Eric painted his bedroom blue.
-    - ***Eric**** painted his bedroom blue.
+    - ***Eric*** painted his bedroom blue.
     - Eric ***painted*** his bedroom blue.
     - Eric painted ***his*** bedroom blue.
     - Eric painted his ***bedroom*** blue.
