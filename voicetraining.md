@@ -4,11 +4,6 @@
 - Place one hand on your chest and one hand on your belly.
 - **Inhale:** Breathe in through your nose. Think about breathing low to fill up the bottom of your lungs. As you breathe in you should feel your belly press out and/or your ribs expand to the sides. The hand on your chest should stay relatively still.
 - **Exhale:** Breathe out with pursed lips. As you breathe out gently contract your abdominals. Think about pressing the air up frmo below as you exhale.
-### Cup Bubbles
-- Take a relaxed breath in, then blow slowly into a straw to make bubbles in a cup of water.
-- Hum while exhaling and try to move the hum to the fornt of the mouth.
-- Slide the pitch fo the hum sound up and down with steady control.
-- Try to exhale for 5 to 10 seconds.
 ### MMM Sounds
 - Hold a hum sound for 5 to 8 seconds.
 - Try to notice the forward vibration on your lips.
